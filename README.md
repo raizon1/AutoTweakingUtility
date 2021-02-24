@@ -1,2 +1,2 @@
 
-Credits to Enryoo and Lais.
+Credits to Enryoo, Fanta and Lais.
